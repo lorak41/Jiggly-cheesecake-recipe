@@ -42,7 +42,7 @@ For low-carb version use coconut oil, coconut flour and xylitol (or erythritol) 
 15. Bake the cake at 180˚C for 20min.
 16. After 20min, change temperature to 110˚C and bake for 60min.
 17. Turn of the oven and wait 10 minutes to cooldown.
-18. Gently tap around the mold for the cake to fall out. Spread honey, apricot jam or icing sugar to the top to make it look pretty.
+18. Gently tap around the mold for the cake to fall out on your hand. Put it on a plate. Spread honey, apricot jam or icing sugar to the top to make it look pretty.
 
 
 ## Nutrition information
