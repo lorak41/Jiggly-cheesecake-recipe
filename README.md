@@ -39,6 +39,7 @@ For low-carb version use coconut oil, coconut flour and xylitol (or erythritol) 
 ![Alt text](cake_liner.jpg?raw=true "Title")
 
 14. Place the cake pan in a mold, then fill in 1/3 to 1/4 with hot (not boiling) water.
+![Alt text](water_bath.jpg?raw=true "Title")
 15. Bake the cake at 180˚C for 20min.
 16. After 20min, change temperature to 110˚C and bake for 60min.
 17. Turn of the oven and wait 10 minutes to cooldown.
