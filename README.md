@@ -32,17 +32,21 @@ For low-carb version use coconut oil, coconut flour and xylitol (or erythritol) 
 11. Pour the cream cheese mixture into the bowl with the rest of the egg whites. Use the "fold technique" to make sure all the liquids are combined.
 
 ![Alt text](folding.gif?raw=true "Title")
+(Folding technique)
 
 12. Stir gently until everything is combined.
 13. Place parchment paper in a cake pan (circle and wall liner), then pour in the cake mixture.
 
 ![Alt text](cake_liner.jpg?raw=true "Title")
+(Cake liner)
 
 14. Place the cake pan in a mold, then fill in 1/3 to 1/4 with hot (not boiling) water.
 ![Alt text](water_bath.jpg?raw=true "Title")
+(water bath)
+
 15. Bake the cake at 180˚C for 20min.
 16. After 20min, change temperature to 110˚C and bake for 60min.
-17. Turn of the oven and wait 10 minutes to cooldown.
+17. Turn of the oven and wait 10 minutes or more to cooldown.
 18. Gently tap around the mold for the cake to fall out on your hand. Put it on a plate. Spread honey, apricot jam or icing sugar to the top to make it look pretty.
 
 
