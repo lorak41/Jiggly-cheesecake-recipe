@@ -60,3 +60,17 @@ For low-carb version use coconut oil, coconut flour and xylitol (or erythritol) 
 
 
 Enjoy the jiggliness! 😉
+
+
+## Japanese Cheesecake troubleshooting:
+
+- **Why is the bottom of my cake dense?** You did not mix your final batter well enough. Too much of the egg white remains unincorporated, and the heavier ingredients are baking at the bottom with little egg whites.
+
+- **Why is the top of my cake cracking?** The oven temperature is too high.
+
+- **Why isn’t the top of my cake browning?** The oven temperature is a bit too low. Try middle rack baking, and don’t cut the strips of parchment paper surrounding the rim too high.
+
+- **Why is my cake so flat?** Your egg whites may have been under-beaten. Your final batter may have become too watery. You can try adding a little baking powder to your batter. Not too much, maybe 1/4 tsp. Your oven temperature may have been too low.
+
+- **What happens after I refrigerate the cake?** It no longer bounces or jiggles, but becomes a denser cheesecake.
+
