@@ -39,6 +39,7 @@ For low-carb version use coconut oil, coconut flour and xylitol (or erythritol) 
 
 ![Alt text](cake_liner.jpg?raw=true "Title")
 (Cake liner)
+![Alt text](stir_pic.png?raw=true "Title")
 
 14. Place the cake pan in a mold, then fill in 1/3 to 1/4 with hot (not boiling) water.
 ![Alt text](water_bath.jpg?raw=true "Title")
