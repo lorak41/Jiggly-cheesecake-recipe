@@ -35,7 +35,8 @@ For low-carb version use coconut oil, coconut flour and xylitol (or erythritol) 
 (Folding technique)
 
 12. Stir gently until everything is combined.
-13. Place parchment paper in a cake pan (circle and wall liner), then pour in the cake mixture. Optionally, shake to release any large air bubbles and/or use a skewer to stir it. 
+13. Place parchment paper in a cake pan (circle and wall liner), then pour in the cake mixture. \
+Optionally, shake to release any large air bubbles and/or use a skewer to stir it. 
 
 ![Alt text](cake_liner.jpg?raw=true "Title")
 (Cake liner)
